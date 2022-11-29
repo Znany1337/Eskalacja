@@ -1,3 +1,3 @@
 # Eskalacja
 
-Ta histroia się zaczeczała
+Ta histroia się zacze
